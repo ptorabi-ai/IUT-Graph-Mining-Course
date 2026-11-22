@@ -5,7 +5,7 @@
 **Instructor:** [Dr. Zeinab Maleki]  
 
 ## Student Information
-- **Student Name(s):** [Full name(s)]  
+- **Student Name(s):** [۴۴۴۴۴۴s)]  
 - **Student ID(s):** [ID(s)]  
 - **Email(s):** [Email address(es)]  
 
